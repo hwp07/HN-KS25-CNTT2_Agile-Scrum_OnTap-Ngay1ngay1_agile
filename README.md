@@ -1,0 +1,1 @@
+# HN-KS25-CNTT2_Agile-Scrum_OnTap-Ngay1ngay1_agile
